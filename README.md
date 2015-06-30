@@ -4,3 +4,6 @@ I like to write books,
 I am in the middle of a book now
 I wonder if I will ever get to finish my first book
 We will see.  We will see
+
+
+I hope I can finish my book before I finish school
